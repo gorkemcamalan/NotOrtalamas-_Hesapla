@@ -1,0 +1,1 @@
+# NotOrtalamas-_Hesapla
